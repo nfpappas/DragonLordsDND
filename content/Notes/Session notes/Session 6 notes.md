@@ -1,0 +1,5 @@
+We finish our conversation in the secret place. Merric brought up his idea of just fiting the warlord. He was shot down and we all decided to go with the kill the basalik plan. We want to kill them as soon as possible even though we have a week left to do so. We know some of the basalisk but resarch more in the library. we learn more of eira and helios. 
+
+Kadem and merric discover more about the basalisk. We find that their gaze is what turns people to stone. We know they are not particulary perceptive. They live in caves or dens but near the water. They usually only group in small numbers typically less than 10 usually around 3 or so.  helios got lost in the books but merric found the book. 
+
+Eira , balthy, and kallik go get an ice bow and look to get some healing potion then end up getting a potion of shit your self to death .

@@ -1,0 +1,7 @@
+We head down on the trail twords the mythral forge. As we proceed we hear some sentars in the distance. We fear that they are an enemy and kadem creates an illusry rock that we hide behind. They get to the rock and we start to suspect that they are not evil. Merric proclamis himselt as oz the great and powerful. he asks if they are friend or foe. They dont nessicarily believe him but kadem helps by creating a moving mouth on the rock. he makes them promise to be on their way with haste after they promies they are just looking for their friends. We cling to the wall and they pass. 
+
+We continue on the trail and find a grand waterfall. We deliberate as to what to what to do. Kallik decides to try his lantern. He lights it with his tinderbox. It creates light but he dosent see anything but notices that the lantern say feed the flame. Merric sees magic all over the place. For kalliks ask merric to light his lantern on a hunch. He lights it with prestidigitation and the flame turns purple. It illuminates the walls of the clif and runes. We all touch the runes pushing them in which creates a stairway to apear we climb up our own stairways. 
+
+Merric cant seem to understand dwarves and triggers a fair bit of traps but does make it up the stairs. We find we have to use the lantern to cross the water on the platforms. Which is somewhat hard to communicate because of the noise. 
+
+merric is sucessful recharging his luck with a nat 20 for 26 recharging his luck. 

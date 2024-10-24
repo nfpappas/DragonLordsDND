@@ -1,0 +1,1 @@
+Gaius defened helios' sister anara. Even though he suspected we were at fault or something was a miss he killed lutharias harpies that came to demand the sacrafice. 

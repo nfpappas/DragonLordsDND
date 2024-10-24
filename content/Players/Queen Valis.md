@@ -1,0 +1,1 @@
+She is the queen of mytros. She has a hard time trusing people. She asked us to kill gaius because she lost contorl of the city to her husband [[King acustus]]. She feels that he is in bed with the titans and dosen't have feelings for him as their marrage seems like it it one of 

@@ -1,0 +1,1 @@
+We find out that king acustus lost. We also find out that  gaius lost. We go on to our new fight against some mitheral dwarves. We win fairly easily. Capt. Titus is in the finals with us. He asks to do a dual. We elect helios to fight. A tough fight, but helios does emerge victorious. 

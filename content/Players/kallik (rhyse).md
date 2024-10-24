@@ -1,0 +1,3 @@
+the oracle tells him that he has a strong bond with his creator but he wishes to be free and for kallik to be free of the fate he brought apon them . The fates deem that his maker may destory kallik. He does not want them to meet and want kallik to be free (data from star trek). Caution against seeking him out too soon. He holds the power to change his destiny.
+
+kallik is asked by the queen vallas as to who he is. He tells her that he was created by frostburu. He shows her that he has a symbol of vulcan on the back of his head hidden under hes helmat. Vallas take great intrest in him as a mechanical being made in thilea. he also says he wants to find his maker but will relay the message when he finds him. 

@@ -1,0 +1,3 @@
+We start by taking a long rest. We are weary after out travels and could use the rest. In the middle of the night we hear a voice call out to kalik, balthy, and merric that "now that his god is gone, she is gonna get him" Probably referring to balthor. meanwhile, kira is sitting looking contimplatively out over the waterfall. During helioses watch, he kills some troglodites that show up and talks to kira. She is worried about the recent events (not being explicite about what that is). He heads back to camp and then has everyone wake up.
+
+We had down the path to a fork in the road. We investigate and see trolodite footprints going every which way. 

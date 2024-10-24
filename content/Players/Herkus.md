@@ -1,0 +1,1 @@
+the crazy evil gnome from the old temple. Kara used grater restoration and started to have a conversation with him "with deep sadness and regret in her eyse"

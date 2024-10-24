@@ -1,0 +1,1 @@
+We meet with the mayor of farmington. He brings us inside and we go to the stables which are currently unused. He gives some morse code to signal people below the floor. 

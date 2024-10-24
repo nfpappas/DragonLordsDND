@@ -1,0 +1,1 @@
+We enter the completly dark cave. We cant see anything as the sounds of kadems gasping reverberates off the walls . Helios throws a lit javalin and we see bones, footprints, and some statues at the far end of the cave as we decide to start walking. Helios sees that they may be trying to ambush it. 

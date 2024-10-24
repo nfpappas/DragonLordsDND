@@ -1,0 +1,10 @@
+We go back to our room at the inn to discuss what to do with the rest of the week. Balthor wants to patrol the city. Kadeem and merric want to go to the library. Kalik wants to work on the puzzle box. Helios wants to rend the flesh of the innocent. 
+
+  
+Balthor goes on patrol and meets a missionary of sidron. He is spreading words to teens about an alternative way of life. He identifies himself as brother mikiel. balthor talks to them once the missionary leaves. He tries to point out that they all wernt having a dialog but rather just being preeched to. They seam to  believe in him
+
+Kadeem and merric go to the history library. The previous victories tended to be won by brute strength. Magic users can and do sometimes win. One magic using dwarf was poisoned by another contestant. There are some times where a team will go up against creatures for some reason. seems like we will fight humanoids. will be 3 rounds. Mostly mele fighters. Magic is somewhat unlikely to be used but not unheard of. 
+
+Merric at night tries to give kira some of his magic to help her get better. He tries to do so just in the same way that he does to his charms. It works to kiras and merrics amazement. He notices that it does work. The magic radiates throughout her. He also notices that when he touches her IT SEEMS LIKE HER SKIN FEELS LIKE DRAGON SCALES. 
+
+The next day we rent some horses and ride to the home of eira or atleast the home she went to after she was shipwrecked at. As we leave the halfling in charge makes his presence known to merric. He says commands to the horses in halfling and merric understands. merric does not understand. He takes some time to think about those ramifications. We poke around for answers and end up at farncod. This place people recognise eira. We go to talk to one of the people that may or may not have been bitten. 

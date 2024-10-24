@@ -1,0 +1,3 @@
+We talk to her after she invites us to dinner. She says that she wants to talk things out because rational minds can prevail. She also goes on to say that she wants revenge on the dragon lords because of what they did (presumably to her sister) and because they came to where they wernt wanted. She wants to restore the titans to their glory and push out all followers and remnents of the dragon lord because "they were better off".
+
+Her plan was to get humans to eat other humans to turn them into the weird goatling people. They were going to attempt to gain an army and serve cideron.  

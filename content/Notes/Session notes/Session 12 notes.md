@@ -1,0 +1,5 @@
+We enter the temple. kalik finds a hole in the room where some light is going down. Merric volunteers to go down the hole with a hole that helios is lowering. A vine snaps the rope. Merric safely catches himself on the walls and finds himself in a beautiful garden. He hears in the distance more goatmen that are chasing another child. Merric messages helios to tell him whats up. helios and the rest of the party spring into action and the group rushes to aid.
+
+The group encounters a room filled with dirty water that has been here for ages. they move over the water. kallik throws a speer into the water. It is very strange and non-newtonian. bubbles start to form on the survace as the cross. sludge tries to attack helios as he crosses. as it hits helos the party can see it for what it is, a grey ooze. They kill the ooze.
+
+MEANWHILE:  
