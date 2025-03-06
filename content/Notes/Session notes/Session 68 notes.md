@@ -1,0 +1,5 @@
+We set out to bring our new passangers (the medusa and the family of mantacors) As we are underway, balthor goes to take a closer look at the ship.  He finds a skeletal sailor who comes aboard. The spirit talks to use and we dont really believe his story which is that he's just a outworlder that is just trying to get home. (earily similar to edimas story). 
+
+Meanwhile eira can no longer wait for food. Helios offers his blood. and, while eira has a hard time stopping herself, she feels better then she has ever felt before increasing her stats (for the moment)
+
+We get close to the shore. As our doubts of the skeletal man rise, balthor believes he must do something to understand him. He asks merric if he can help but merric says he cant reviel his true essence as it is not within his power and suggest asking his uncle for help instead. He reluctantly does and he is able to cast true seeing. He sees the ship for what it truly is, he sees a crew member for who they are. 
